@@ -1,5 +1,4 @@
 
-![Presentacion](https://github.com/santiiskd8/santiiskd8/assets/129817565/3bd149f3-bce4-41a8-8784-3ebe4b1c135f)
 
 ----------------------------------------------------------------------------------------------------------
 ![html (1)](https://github.com/santiiskd8/santiiskd8/assets/129817565/5e00f380-b9ce-441b-ab4a-6bb65d31513f)
